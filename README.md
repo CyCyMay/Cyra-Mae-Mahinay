@@ -1,2 +1,0 @@
-# Cyra-Mae-Mahinay
-index
